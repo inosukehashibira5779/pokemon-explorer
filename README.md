@@ -1,1 +1,1 @@
-https://inosukehashibira5779.github.io/pokemon-explorer/
+https://prathampatel79.github.io/pokemon-explorer/
